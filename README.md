@@ -1,0 +1,1 @@
+# Analisis_predictivo_2026_Q2_Kaggle
